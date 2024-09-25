@@ -1,0 +1,1 @@
+## notion doc link - https://pool-phalange-37a.notion.site/JavaScript-101-10c8210b4fb980a7ae8ec3b865a211f0
